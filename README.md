@@ -1,2 +1,0 @@
-# greatwebsitegofagdestroyer
-destroys gofag
